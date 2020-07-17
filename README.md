@@ -13,7 +13,7 @@ Hello, I'm Sigh I'm a "developer" I'm 18 years old I'm just a fucked up Brazilia
 
 ---
 
-You can add me on discord: <Fane#0001>.
+You can add me on discord: Fane#0001.
 
 [![Twitter](https://img.shields.io/twitter/follow/Sigh1337?style=social)](https://twitter.com/Sigh1337)
 [uidf.cc](https://uidf.cc) &copy; 2020
